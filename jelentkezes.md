@@ -13,6 +13,7 @@ Jelentkezés az alábbi linken:
 https://forms.gle/fSLJcPWMdBfiBvCz7
 
 
+
   
 **2026.11.13-14-15.** 
 Budapest, Áthidaló Fejlesztőház  
